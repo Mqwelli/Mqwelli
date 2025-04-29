@@ -1,3 +1,2 @@
 💡  Programmer in training,<br>
-✨  in search of inspiration. <br>
 🛠️  readme still under construction ...
